@@ -1,0 +1,2 @@
+# Sworad.com
+It is a platform where every people who are interested in the information technology and science can find their every necessary materials related to science, information Technology, history, current affairs, etc such as updates related to his along with news and blog also in this website. It is the place which could be like the golden collection for those of whom are preparing for the lok sewa aayog examination. It is the website which is visited by over 5 million people per month
